@@ -1,3 +1,1 @@
-PROFESSOR, O 3 NÃO FUNCIONA NO MEU PC MAS NO DO GARZUZE SIM AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
-
 Estarei entregando até a lição 6 agora, mas pretendo terminar as 9 atividades!
